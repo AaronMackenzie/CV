@@ -1,6 +1,6 @@
 # Aaron Mackenzie Misquith  
 **Phone:** 900-898-7779 | **Email:** aaronmackenzz@gmail.com  
-**Location:** Bengaluru, India / North Dakota 58102, USA  
+**Location:** Bengaluru, India 
 
 ---
 
